@@ -8,7 +8,7 @@
 #### 8
 #### 9 Github is really awesome.
 #### 10
-#### 11
+#### 11 And Cole has amazing *sparkle emoji* Ice powers *sparkle emoji* like Elsa.
 #### 12
 #### 13
 #### 14
