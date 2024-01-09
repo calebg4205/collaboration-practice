@@ -1,6 +1,6 @@
 #### 1
 #### 2
-#### 3
+#### 3 Cole has naturally straight hair and has a mini hair straightener to curl his hair in the bathroom.
 #### 4
 #### 5
 #### 6
